@@ -1,4 +1,4 @@
-# 
+# Profissional NordVPN modelos para Mac OS | Turbo NordVPN modelos para PC Windows. Com sistema de plugins e suporte OpenVPN — otimizado para máximo desempenho em cada plataforma.
 
 
 
